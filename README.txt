@@ -1,2 +1,0 @@
-Yiqian Wu
-Hawkeye
